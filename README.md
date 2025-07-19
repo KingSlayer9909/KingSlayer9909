@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... bradyobrien999@gmail.com
 - 😄 Pronouns: ...he/him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... Like watching action anime and Love to sleep
 
 <!---
 KingSlayer9909/KingSlayer9909 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
