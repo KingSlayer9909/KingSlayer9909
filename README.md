@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @KingSlayer9909
-- 👀 I’m interested in ... cybersercuity
+- 👀 I’m interested in ... cybersecurity
 - 🌱 I’m currently learning ...coding
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me ...bradyobrien999@gmail.com
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ...
 
